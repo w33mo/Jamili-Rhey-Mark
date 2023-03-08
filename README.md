@@ -1,11 +1,9 @@
-# Jamili-Rhey-Mark
+# **J**amili-**R**hey-**M**ark
 ====================
-## Ridding Motorcycle 
-## Playing Basket Ball
-## Reading Memes
-## Playing Computer
-## Jogging
+
+## Injoy now Suffer Later
+
 ====================
-### Jamili, Rhey Mark
-### Lunzaga, John Lester
-### Borress, Ronieric
+### *Jamili, Rhey Mark*
+### *Lunzaga, John Lester*
+### *Borress, Ronieric*
