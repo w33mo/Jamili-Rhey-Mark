@@ -4,6 +4,5 @@
 ## Injoy now Suffer Later
 
 ====================
-### *Jamili, Rhey Mark*
-### *Lunzaga, John Lester*
-### *Borress, Ronieric*
+
+# Jamili, Rhey Mark
